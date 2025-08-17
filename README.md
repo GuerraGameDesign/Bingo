@@ -1,4 +1,4 @@
-# Bingo do 31º Festejo Do Snatuário Nossa Senhora de Fátima
+# Bingo do 31º Festejo Do Santuário Nossa Senhora de Fátima
 
 #### Dai-nos a benção, cheia de graça, Nossa Senhora Virgem de Fátima.
 
